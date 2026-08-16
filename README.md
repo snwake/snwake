@@ -7,7 +7,7 @@ me　　and　　wifey　　𖹭
 
 <p align="center">
   <a 
-href="https://github.com/pt-hall-of-media">@pt-hall-of-fame⠀ ⠀𐔌՞ ܸ.ˬ.ܸ ՞𐦯</a>
+href="https://github.com/pt-hall-of-media">@pt-hall-of-media⠀ ⠀𐔌՞ ܸ.ˬ.ܸ ՞𐦯</a>
 </p>
 
   
