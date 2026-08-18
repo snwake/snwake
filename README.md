@@ -1,8 +1,8 @@
 <p align="center">
-me　　and　　wifey　　𖹭
+mw　　my　　<a href="https://github.com/piercingveil">closest oomfi</a>　　𖹭
 </p>
   <p align="center">
-<img width="246" height="230" alt="image" src="https://files.catbox.moe/ndpoy6.png" />
+<img width="246" height="230" alt="image" src="https://files.catbox.moe/rlh3af.png" />
 </p>
 
 <p align="center">
