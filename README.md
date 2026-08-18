@@ -1,5 +1,5 @@
 <p align="center">
-mw　　my　　<a href="https://github.com/piercingveil">closest duo</a>　　𖹭
+mw　　our　　<a href="https://github.com/piercingveil">closest duo</a>　　𖹭
 </p>
   <p align="center">
 <img width="246" height="230" alt="image" src="https://files.catbox.moe/rlh3af.png" />
